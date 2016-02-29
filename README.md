@@ -10,6 +10,7 @@ I'm working with [@TheAME](https://www.github.com/TheAME "@TheAME")
 
 # Contact me!
 > email: rysiel1123@gmail.com
+
 > skype: rysielpoprostu
 
 
